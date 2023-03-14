@@ -4,11 +4,20 @@ https://t.me/tukuno
 
 https://t.me/tukuno
 
+![](https://user-images.githubusercontent.com/93540642/224862489-275ff766-bea7-4a48-87e5-860dbd484111.png)
+
+
 HASHTAGS: HASHTAGS: HASHTAGS: HASHTAGS:
 
 # Auto-Withdraw-Transfer-BSC20-ERC20-Tokens-Sweeper-bot
 Auto Withdraw Transfer BSC20/ERC20 Tokens - Sweeper bot Auto Sender
 Auto-Withdraw From- rust Wallet Metamask
+
+Contact: IF YOU WANT SCRIPT DM ME IN TELEGRAM 👇 👇 👇
+
+https://t.me/tukuno
+
+https://t.me/tukuno
 
 Script for Autosend / Auto Withdraw / Auto Transfer for TOKENS and FTM / Fantom / ETHW / BTC / USDT / Avax / trx / bnb / bsc / eth
 

@@ -4,8 +4,6 @@ https://t.me/tuknoe
 
 https://t.me/tuknoe
 
-![](https://user-images.githubusercontent.com/93540642/224862489-275ff766-bea7-4a48-87e5-860dbd484111.png)
-
 
 HASHTAGS: HASHTAGS: HASHTAGS: HASHTAGS:
 

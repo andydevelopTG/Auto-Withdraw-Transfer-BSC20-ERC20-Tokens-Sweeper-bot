@@ -1,8 +1,8 @@
 Contact: IF YOU WANT SCRIPT DM ME IN TELEGRAM 👇 👇 👇
 
-https://t.me/tuknoe
+https://t.me/andy_develop
 
-https://t.me/tuknoe
+https://t.me/andy_develop
 
 
 HASHTAGS: HASHTAGS: HASHTAGS: HASHTAGS:
@@ -13,9 +13,9 @@ Auto-Withdraw From- rust Wallet Metamask
 
 Contact: IF YOU WANT SCRIPT DM ME IN TELEGRAM 👇 👇 👇
 
-https://t.me/tuknoe
+https://t.me/andy_develop
 
-https://t.me/tuknoe
+https://t.me/andy_develop
 
 Script for Autosend / Auto Withdraw / Auto Transfer for TOKENS and FTM / Fantom / ETHW / BTC / USDT / Avax / trx / bnb / bsc / eth
 
